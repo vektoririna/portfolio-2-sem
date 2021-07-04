@@ -1,1 +1,0 @@
-# vektoririna.github.io
